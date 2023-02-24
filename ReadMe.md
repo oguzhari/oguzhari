@@ -12,7 +12,6 @@
 - 📝 I regularly write articles on [https://oguzhari.medium.com/](https://oguzhari.medium.com/)
 
 - 📫 How to reach me **oari@sakarya.edu.tr**
-- 
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
